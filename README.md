@@ -3,7 +3,7 @@
 
 ##  **怎么分辨交易所官方地址和其优劣势？**
 
-[ 币安 (Binance)](https://accounts.marketwebb.net/register?ref=BTCITSMEME)丨[OKX (欧易)](https://okx.com/join/65280915)丨[Bitget](https://share.glassgs.com/u/YYJ3C67L)丨[Gate.io (芝麻开门)](https://www.gate.com/signup/VLUQA1BXVA?ref_type=103)丨[GMGN（meme币）](https://www.gate.com/signup/VLUQA1BXVA?ref_type=103)
+[ 币安 (Binance)](https://accounts.marketwebb.net/register?ref=BTCITSMEME)  [OKX (欧易)](https://okx.com/join/65280915)  [Bitget](https://share.glassgs.com/u/YYJ3C67L)  [Gate.io (芝麻开门)](https://www.gate.com/signup/VLUQA1BXVA?ref_type=103)  [GMGN（meme币）](https://www.gate.com/signup/VLUQA1BXVA?ref_type=103)
 
 [安装遇到问题丨学习资料领取丨电报交流学习群 ](https://t.me/playbtceth)
 
