@@ -3,7 +3,7 @@
 
 新手怎么买卖数字货币？小白进入币圈怎么入门？各大交易所哪个好用？币圈有哪些好用的工具？本指南旨在解决你的这些疑问。  
 
-**官方入口：**[ 币安 (Binance)](https://accounts.marketwebb.net/register?ref=BTCITSMEME)  丨[OKX (欧易)](https://okx.com/join/65280915)  丨[Bitget](https://share.glassgs.com/u/YYJ3C67L)  丨[Gate.io (芝麻开门)](https://www.gate.com/signup/VLUQA1BXVA?ref_type=103)  丨[GMGN（meme币交易）](https://link.gmgn.ai/?url=https%3A%2F%2Fgmgn.ai&page=Main&ref=naH5qf0k&referral=naH5qf0k&chain=sol)  
+**官方入口：**[ 币安 (Binance)](https://www.maxweb.mobi/referral/earn-together/refer-in-hotsummer/claim?hl=zh-CN&ref=GRO_20338_MFUGM)  丨[OKX (欧易)](https://okx.com/join/65280915)  丨[Bitget](https://share.glassgs.com/u/YYJ3C67L)  丨[Gate.io (芝麻开门)](https://www.gate.com/signup/VLUQA1BXVA?ref_type=103)  丨[GMGN（meme币交易）](https://link.gmgn.ai/?url=https%3A%2F%2Fgmgn.ai&page=Main&ref=naH5qf0k&referral=naH5qf0k&chain=sol)  
 
 **[安装遇到问题丨进阶书籍下载丨电报交流学习群](https://t.me/playbtceth)**  
 
@@ -45,7 +45,7 @@
 
 #### 知名平台（请自行查询最新监管政策和用户评价，选择适合自己的）：
 
-* **[币安（Binance](https://accounts.marketwebb.net/register?ref=BTCITSMEME)）**：成立于 2017 年 6 月，由赵长鹏（CZ）和何一共同创立，是全球最大的加密货币交易所。截至 2025 年 7 月，拥有超过 2.8 亿用户，日交易量超过 2170 亿美元，提供 500 多种加密货币和 1500 多个交易对，服务于 180 多个国家。（可填推荐码：**BTCITSMEME** ）
+* **[币安（Binance](https://www.maxweb.mobi/referral/earn-together/refer-in-hotsummer/claim?hl=zh-CN&ref=GRO_20338_MFUGM)）**：成立于 2017 年 6 月，由赵长鹏（CZ）和何一共同创立，是全球最大的加密货币交易所。截至 2025 年 7 月，拥有超过 2.8 亿用户，日交易量超过 2170 亿美元，提供 500 多种加密货币和 1500 多个交易对，服务于 180 多个国家。（可填推荐码：**BTCITSMEME** ）
 * **[欧易（OKX）](https://okx.com/join/65280915)**：由徐明星于 2017 年创立，也是全球性的大交易所之一，功能齐全，币种丰富，主要面向大陆群体，UI 比较简洁好看，Web3 功能是几个大所里最好的。（可填推荐码：**65280915** ）
 * **[Bitget](https://share.glassgs.com/u/YYJ3C67L)**：2018 年创立，交易规模全球前五，主流币种齐全，缺点是冷门币种交易深度差。新用户注册优惠比较多，在跟单交易和对新用户的友好激励上，拥有自己的优势。（可填推荐码：**YYJ3C67L** ）
 * **[Gate.io（芝麻开门）](https://www.gate.com/zh/signup?ref_type=103&ref=VLUQA1BXVA)**：成立于 2013 年，是行业内最早成立的交易平台之一。相比币安是小所，相比其他野鸡所是大所。支持超过 3500 种加密货币，远超许多其他主流交易所，以加密货币种类繁多而闻名。缺点是交易深度浅，但适合那些资金量少喜欢博百倍千倍的早期埋伏玩家。（可填推荐码：**VLUQA1BXVA** ）
