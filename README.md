@@ -3,7 +3,7 @@
 
 新手怎么买卖数字货币？小白进入币圈怎么入门？各大交易所哪个好用？币圈有哪些好用的工具？本指南旨在解决你的这些疑问。  
 
-**官方入口：**[ 币安 (Binance)](https://www.maxweb.mobi/referral/earn-together/refer-in-hotsummer/claim?hl=zh-CN&ref=GRO_20338_MFUGM)  丨[OKX (欧易)](https://okx.com/join/65280915)  丨[Bitget](https://share.glassgs.com/u/YYJ3C67L)  丨[Gate.io (芝麻开门)](https://www.gate.com/signup/VLUQA1BXVA?ref_type=103)  丨[GMGN（meme币交易）](https://link.gmgn.ai/?url=https%3A%2F%2Fgmgn.ai&page=Main&ref=naH5qf0k&referral=naH5qf0k&chain=sol)  
+**官方入口：**[ 币安 (Binance)](https://accounts.maxweb.mobi/register?ref=10000BTC)  丨[OKX (欧易)](https://okx.com/join/65280915)  丨[Bitget](https://share.glassgs.com/u/YYJ3C67L)  丨[Gate.io (芝麻开门)](https://www.gate.com/signup/VLUQA1BXVA?ref_type=103)  丨[GMGN（meme币交易）](https://link.gmgn.ai/?url=https%3A%2F%2Fgmgn.ai&page=Main&ref=naH5qf0k&referral=naH5qf0k&chain=sol)  
 
 **[安装遇到问题丨进阶书籍下载丨电报交流学习群](https://t.me/playbtceth)**  
 
