@@ -3,7 +3,7 @@
 
 新手怎么买卖比特币？小白入门币圈该怎么做？欧易币安等大交易所怎么注册？币圈有哪些好用的链上分析工具？怎么使用工具管理自己的资产？本指南旨在全面的解决你在币圈遇到的各种疑问、提供高参考价值的分析工具。  
 
-**官方入口：**[ 币安 (Binance)](https://accounts.maxweb.mobi/register?ref=10000BTC)  丨[OKX (欧易)](https://okx.com/join/65280915)  丨[Bitget](https://partner.dhxrcw.cn/bg/c6fth3se)  丨[Gate.io (芝麻开门)](https://www.gate.com/signup/VLUQA1BXVA?ref_type=103)  丨[GMGN（meme币交易）](https://link.gmgn.ai/?url=https%3A%2F%2Fgmgn.ai&page=Main&ref=naH5qf0k&referral=naH5qf0k&chain=sol)  
+**官方入口：**[ 币安 (Binance)](https://accounts.maxweb.academy/register?ref=10000BTC)  丨[OKX (欧易)](https://okx.com/join/65280915)  丨[Bitget](https://partner.dhxrcw.cn/bg/c6fth3se)  丨[Gate.io (芝麻开门)](https://www.gate.com/signup/VLUQA1BXVA?ref_type=103)  丨[GMGN（meme币交易）](https://link.gmgn.ai/?url=https%3A%2F%2Fgmgn.ai&page=Main&ref=naH5qf0k&referral=naH5qf0k&chain=sol)  
 
 **[安装遇到问题丨进阶书籍下载丨电报交流学习群](https://t.me/playbtceth)**  
 
@@ -39,7 +39,7 @@
 
 #### 全球用户量靠前的正规持牌平台：
 
-* **[币安（Binance](https://accounts.maxweb.mobi/register?ref=10000BTC)）**：由赵长鹏和何一共同于2017年6月创立，全球最大的加密货币交易所。拥有超过2.8亿用户，日交易量超过2170亿美元，提供500多种加密货币和 1500多个交易对交易，服务于180多个国家。（可填推荐码：**10000BTC** ）
+* **[币安（Binance](https://accounts.maxweb.academy/register?ref=10000BTC)）**：由赵长鹏和何一共同于2017年6月创立，全球最大的加密货币交易所。拥有超过2.8亿用户，日交易量超过2170亿美元，提供500多种加密货币和 1500多个交易对交易，服务于180多个国家。（可填推荐码：**10000BTC** ）
 * **[欧易（OKX）](https://okx.com/join/65280915)**：由徐明星于2017年创立，是全球排名前三的大交易所，功能齐全，币种丰富，界面简洁美观，Web3功能是几个大所里最好的。（可填推荐码：**65280915** ）
 * **[Bitget](https://partner.dhxrcw.cn/bg/c6fth3se)**：2018年创立，交易规模全球前五，主流币种齐全，缺点是冷门币种交易深度差，。新用户注册优惠比较多，在跟单交易和对新用户的友好激励上，拥有自己的优势。（可填推荐码：**10000BTC** ）
 * **[Gate.io（芝麻开门）](https://www.gate.com/zh/signup?ref_type=103&ref=VLUQA1BXVA)**：成立于 2013 年，是行业内最早成立的交易平台之一。相比币安是小所，相比其他野鸡所是大所。支持超过3500种加密货币，远超许多其他主流交易所，以加密货币种类繁多而闻名。缺点是交易深度浅，但适合那些资金量少喜欢博百倍千倍的早期埋伏玩家。（可填推荐码：**VLUQA1BXVA** ）
